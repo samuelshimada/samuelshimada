@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil💙
+### vindas ao meu perfil💙
 
 Meu nome é Samuel Shimada
 - Estou estudando na [Alura]
