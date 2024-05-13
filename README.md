@@ -9,4 +9,4 @@ Meu nome é Samuel Shimada
 
 00001067078708sp@al.educacao.sp.gov.br
 
-![.](https://media1.tenor.com/m/QiUtH4YUcocAAAAC/youre-welcome-pleasure.gif)
+![](https://media1.tenor.com/m/QiUtH4YUcocAAAAC/youre-welcome-pleasure.gif)
